@@ -1,0 +1,1 @@
+# squadgrow.store-theme
